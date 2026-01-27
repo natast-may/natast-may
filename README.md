@@ -6,11 +6,14 @@ I am a Psychology & Data Science student at the University of Notre Dame
 
 🌱 Hoping to pursue a PhD in Developmental Psychopathology
 
-📍Kansas City, Kansas
-
-📖 Languages: English, Spanish
+📖 Languages: English, Spanish, Quechua
 
 📩 Email: nmay2@nd.edu
 
+## My Interests
+📖 Reading
 
+🎶 Listening to music
+
+🪡 Sewing
 
