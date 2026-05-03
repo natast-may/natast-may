@@ -8,7 +8,7 @@
 - 🌱 I love to read and listen to music in my spare time
 
 📩 Email: nmay2@nd.edu
-🔗 LinkedIn: [Natalie Astoquilca-May](www.linkedin.com/in/natalie-astoquilca-may-6283a02a7)
+🔗 LinkedIn: (www.linkedin.com/in/natalie-astoquilca-may-6283a02a7)
 
 ## My Interests
 - Data analysis and visualization
